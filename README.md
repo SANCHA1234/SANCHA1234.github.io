@@ -1,1 +1,1 @@
-Este es mi repositorio para marcas ya mpliacion
+Este es mi repositorio para marcas y ampliacion
